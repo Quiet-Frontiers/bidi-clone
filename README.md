@@ -1,5 +1,7 @@
-https://dchkang83.tistory.com/309\
+https://dchkang83.tistory.com/309
+
 https://javaexpert.tistory.com/1125
+
 https://digitalbourgeois.tistory.com/1024
 
 https://github.com/GLips/Figma-Context-MCP?tab=readme-ov-file
